@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @shubchhokra
+- 👀 I’m a venture capital investor interested in a wide set of sectors, but particularly fintech and crypto/digital assets
+- 🌱 I’m a Catalyst Fellow at On Deck
+- 📫 Reach me at shubchhokra [at] gmail [dot] com
